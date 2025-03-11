@@ -1,0 +1,1 @@
+2-amaliy vazifa
